@@ -6,9 +6,6 @@
 <div align="center">
   <img src="https://s12.gifyu.com/images/bvpQy.gif">
 </div>
-<p align="center">
-<img src="https://64.media.tumblr.com/c885f639360d8dfa5d2ac4d3c431138e/3389feee3881de46-57/s75x75_c1/9877e5efc9f76f3e7c7c7e4ff4244477aa295ad5.gifv"> <a href="https://gifypet.neocities.org/pet/pet.html?name=Malware&dob=1764120134&gender=b&element=Water&pet=https%3A%2F%2Fimages-wixmp-ed30a86b8c4ca887773594c2.wixmp.com%2Ff%2Fc6422739-64cf-4154-aca6-b0f478801ff9%2Fd36wlcw-521db74c-30eb-404e-bb76-0b79a44be661.gif%3Ftoken%3DeyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9jNjQyMjczOS02NGNmLTQxNTQtYWNhNi1iMGY0Nzg4MDFmZjkvZDM2d2xjdy01MjFkYjc0Yy0zMGViLTQwNGUtYmI3Ni0wYjc5YTQ0YmU2NjEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.F7HpBaUnmb19L85osWWf_QCQFS3QSlPmUBbFkE33PmQ&map=https%3A%2F%2Fencrypted-tbn0.gstatic.com%2Fimages%3Fq%3Dtbn%3AANd9GcTFcKB-nemuHTs5AzmUZV2aW9XQAgC0wVF_6FMqZ8vQxcKAUbME80FVJLcqiMEIPA4nF44%26usqp%3DCAU&background=https%3A%2F%2F64.media.tumblr.com%2F5d01dda9716d17f7a880cce712dd7230%2F2e29e70db6d6fc6c-1a%2Fs1280x1920%2Fc45594e9742918cb387e5c70e6279b9bc4857127.gifv&tablecolor=%23208ca2&textcolor=white">say hi</a> , <a href="https://rentry.co/theguardiansofthegalaxy"> abt me</a> , <a href="https://wrenchbbid.straw.page/"> doodle me sum!</a> <img src="https://64.media.tumblr.com/c885f639360d8dfa5d2ac4d3c431138e/3389feee3881de46-57/s75x75_c1/9877e5efc9f76f3e7c7c7e4ff4244477aa295ad5.gifv">
-</p>
 <div align="center">
   <img src="https://64.media.tumblr.com/33d0467ed4b30c6be0962b8c3554a170/86b6f36130776341-86/s250x400/186448190b45acd3af00bc4c57b4688cb62021c9.gifv">  <img src="https://64.media.tumblr.com/17f108e7ec1f0f4e0de09f7e110c603c/23403b40e08da2e0-09/s250x400/a63fc84172fbee12f098c67f30104cc530c0a848.gifv">
 </div>
